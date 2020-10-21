@@ -1,2 +1,3 @@
 # Second-trial
-Doing my second trial after 23 days
+Doing my second trial after 23 days of different catasrophies in Da-es-salaam.....
+Thanx to all prayers from certain individuals .
